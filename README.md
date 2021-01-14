@@ -9,7 +9,7 @@ The next semester will start w.e.f 02.02.2021.
 Principal 
 
 
-Circulalation through
+Circulation through
 - HODs
 - Section Incharges
 - Dean Academics 
